@@ -1,7 +1,5 @@
 ![tenor](https://github.com/user-attachments/assets/525b06b7-e6ef-4556-a1e2-e6f36d819a77)
 
-hi
-
 interact if you want i'm very chill 🔥🔥🔥
 idc if you randomly sit with me/boop me
 
