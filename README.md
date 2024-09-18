@@ -8,5 +8,3 @@ i like sonic, resident evil, red dead redemption, final fantasy, devil may cry, 
 i follow back 
 
 
-![Uploading karl-heisenberg-resident-evil8.gif…]()
-
