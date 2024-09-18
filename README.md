@@ -1,7 +1,6 @@
 hi
 
 interact if you want i'm very chill 🔥🔥🔥 i'm awkward but i dont bite
-
 idc if you randomly sit with me/boop me
 
 i like sonic, resident evil, red dead redemption, final fantasy, devil may cry, metal gear solid and silent hill
