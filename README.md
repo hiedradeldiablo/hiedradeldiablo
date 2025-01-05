@@ -10,7 +10,8 @@ i follow back
 
 disc is the same as my github , hiedradeldiablo 
 
-![sonic-sonic-the-hedgehog](https://github.com/user-attachments/assets/87fc783f-f330-4e87-958d-91b88a0d0f6e)
+![f50193cb4e16297e9e84ebb839f04e77ff76190b_hq](https://github.com/user-attachments/assets/d3e911df-c40b-40cd-8797-d414574c6cf9)
+
 
 
 
