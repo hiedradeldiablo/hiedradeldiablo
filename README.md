@@ -3,7 +3,6 @@
 idc if you randomly sit with me/boop me
 
 i like sonic, resident evil, red dead redemption, final fantasy, devil may cry, metal gear solid and silent hill .
-im also interested in the boys and brokeback mountain lol
 
 i follow back 
 
