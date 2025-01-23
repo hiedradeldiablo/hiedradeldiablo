@@ -8,8 +8,8 @@ im also interested in the boys and brokeback mountain lol
 i follow back 
 
 disc is the same as my github , hiedradeldiablo 
+![ezgif-1-9a147cc518](https://github.com/user-attachments/assets/81c84bc4-5260-4d2d-b4a3-a533084d00a5)
 
-![f50193cb4e16297e9e84ebb839f04e77ff76190b_hq](https://github.com/user-attachments/assets/d3e911df-c40b-40cd-8797-d414574c6cf9)
 
 
 
