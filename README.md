@@ -4,6 +4,8 @@ idc if you randomly sit with me/boop me
 
 i like sonic, resident evil, red dead redemption, final fantasy, devil may cry, metal gear solid and silent hill .
 
+current aib brainrot ...
+
 i follow back 
 
 disc is the same as my github , hiedradeldiablo 
