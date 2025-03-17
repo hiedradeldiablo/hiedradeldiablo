@@ -2,10 +2,7 @@
 ![ezgif-1-5fbbc22fb2](https://github.com/user-attachments/assets/a1adc37a-eda5-497a-8cef-3ca01c547a09) interact if you want i'm very chill 🔥🔥🔥
 idc if you randomly sit with me/boop me
 
-i like sonic, resident evil, red dead redemption, final fantasy, devil may cry, metal gear solid and silent hill .
-
-current aib brainrot ...
-
+i like videogames such as sonic, NiGHTS, devil may cry, final fantasy, metal gear solid, red dead redemption, resident evil, dark souls 
 i follow back 
 
 disc is the same as my github , hiedradeldiablo 
