@@ -5,6 +5,8 @@ idc if you randomly sit with me/boop me
 i like videogames such as sonic, NiGHTS, devil may cry, final fantasy, metal gear solid, red dead redemption, resident evil, dark souls, silent hill
 
 i follow back 
+
+
 ![150cf930020ee6e29cf159ffcade47a7](https://github.com/user-attachments/assets/f8cac7e7-6c01-475f-8f7b-1071552cb518)
 
 disc is the same as my github , hiedradeldiablo 
