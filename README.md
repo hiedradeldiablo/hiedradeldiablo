@@ -1,5 +1,5 @@
-
-![ezgif-1-5fbbc22fb2](https://github.com/user-attachments/assets/a1adc37a-eda5-497a-8cef-3ca01c547a09) interact if you want i'm very chill 🔥🔥🔥
+https://tenor.com/view/xemnas-kingdom-hearts-dancing-gif-13496884 
+interact if you want i'm very chill 🔥🔥🔥
 idc if you randomly sit with me/boop me
 
 fav videogames: metal gear solid, final fantasy, nier automata/replicant, alice madness returns, red dead redemption, resident evil, silent hill
