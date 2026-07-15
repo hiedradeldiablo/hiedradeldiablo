@@ -1,7 +1,7 @@
 interact if you want i'm very chill 🔥🔥🔥
 idc if you randomly sit with me/boop me
 
-fav videogames: metal gear solid, final fantasy, nier automata/replicant, alice madness returns, red dead redemption, resident evil, silent hill
+fav media: metal gear solid, castlevania, final fantasy, nier automata/replicant, vampire hunter d, sonic the hedgehog, umamusume, alice madness returns, red dead redemption, resident evil, silent hill
 
 
 
