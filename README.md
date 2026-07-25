@@ -1,6 +1,6 @@
 interact if you want i'm very chill 🔥🔥🔥
 idc if you randomly sit with me/boop me
-i may be off tab or afk, this does not mean i'm ignoring you
+i may be off tab or afk, js send me a whisper and i'll reply 
 
 fav media: metal gear solid, castlevania, final fantasy, nier automata/replicant, vampire hunter d, sonic the hedgehog, umamusume, alice madness returns, red dead redemption, resident evil, silent hill
 
